@@ -1,2 +1,2 @@
-# PhDthesis
-PhD Thesis Circa 2005
+# JawadNasrullahPhDthesis
+Jawad Nasrullah PhD Thesis 2005
