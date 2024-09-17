@@ -1,2 +1,2 @@
-# JawadNasrullahPhDthesis
-Jawad Nasrullah PhD Thesis 2005
+# Jawad Nasrullah Ph.D. thesis
+Jawad Nasrullah Ph.D. Thesis 2005
